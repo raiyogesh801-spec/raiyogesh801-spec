@@ -12,6 +12,8 @@ B.Com Graduate || Trained in Data Science & Analytics with AI || Skilled in SQL,
 ### 🔝 Top Contributed Repo
 ![](https://github.com/raiyogesh801-spec?tab=repositories)
 
+![](https://github.com/raiyogesh801-spec?tab=repositories)
+
 ---
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
